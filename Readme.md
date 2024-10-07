@@ -9,4 +9,4 @@
 
 ##
 
-[![***TAP TO FOLLOW MY GITHUB ACCOUNT***](https://github.com/FREDIE) 
+[![***TAP TO FOLLOW MY GITHUB ACCOUNT***](https://github.com/fredie) 
