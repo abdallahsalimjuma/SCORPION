@@ -9,4 +9,4 @@
 
 ##
 
-[![***TAP TO FOLLOW MY GITHUB ACCOUNT***](https://github.com/abdallahjsalimjuma) 
+[![***TAP TO FOLLOW MY GITHUB ACCOUNT***](https://github.com/abdallahsalim) 
